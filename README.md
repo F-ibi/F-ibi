@@ -1,7 +1,9 @@
-- 👋 Hi, I’m @F-ibi
-- 👀 I’m interested in Product Design and Content Writting.
-- 🌱 I’m currently learning Ux Design.
-- 💞️ I’m looking to collaborate on open source projects.
+Fibi is a detailed content and copy writer, tech event moderator and an open-source design advocate on a mission to educate designers in Africa about open source and it's potential.  
+
+She is currently part of the lesson fixing team at Oppia Org; an open source platform making education easily accessible to those who may not have access to it.
+
+When she's not putting on her full tech regalia, you can catch her baking the world into a better place. Fibi loves dancing and putting smiles on the faces of other people.
+
 - 📫 How to reach me https://about.me/fiberesima
 
 <!---
