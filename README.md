@@ -1,8 +1,9 @@
-Fibi is a detailed content and copy writer, tech event moderator and an open-source design advocate on a mission to educate designers in Africa about open source and it's potential.  
+I am an experienced Community Manager who loves creating engaging and fun experiences for businesses and large corporations. With over four years of experience, I've become an expert at building and managing communities from scratch.
 
-She is currently part of the lesson fixing team at Oppia Org; an open source platform making education easily accessible to those who may not have access to it.
 
-When she's not putting on her full tech regalia, you can catch her baking the world into a better place. Fibi loves dancing and putting smiles on the faces of other people.
+I take a unique approach to community building, which involves understanding the needs and interests of community members. This enables me to create personalized experiences that resonate with the community and foster a sense of belonging.
+
+In addition to community building, I'm skilled in social media management, content creation, and event planning. I'm known for my ability to collaborate effectively with cross-functional teams and stakeholders, ensuring that all initiatives align with business goals and objectives.
 
 - 📫 How to reach me https://about.me/fiberesima
 
