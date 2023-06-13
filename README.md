@@ -1,4 +1,4 @@
-I am an experienced Community Manager who loves creating engaging and fun experiences for businesses and large corporations. With over four years of experience, I've become an expert at building and managing communities from scratch.
+I am an experienced Community Manager who loves creating engaging and fun experiences for businesses and large corporations. With over three years of experience, I've become an expert at building and managing communities from scratch.
 
 
 I take a unique approach to community building, which involves understanding the needs and interests of community members. This enables me to create personalized experiences that resonate with the community and foster a sense of belonging.
