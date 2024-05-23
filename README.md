@@ -5,7 +5,7 @@ I take a unique approach to community building, which involves understanding the
 
 In addition to community building, I'm skilled in social media management, content creation, and event planning. I'm known for my ability to collaborate effectively with cross-functional teams and stakeholders, ensuring that all initiatives align with business goals and objectives.
 
-- 📫 How to reach me https://about.me/fiberesima
+- 📫 How to reach me https://fibi-portfolio.notion.site/Work-Portfolio-9c3694086b234a72aa461cb479abcdb6
 
 <!---
 F-ibi/F-ibi is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
